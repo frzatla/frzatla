@@ -1,4 +1,4 @@
-- hey! firza here :D
+- hey! firza here 🃏
 - right now i am really interested in data analytics and web design!
 - currently learning about the fundamentals of algorithms and its complexities.. (a bit hard..)
 - would love to collaborate on small projects!
